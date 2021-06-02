@@ -6,5 +6,5 @@ Athena is the Greek goddess of knowledge and wisdom and is the daughter of Zeus.
 ## What things has Athena done so far, good or bad?
 Working on it
 
-## What impact did Athena have on Athens?
+## What impact did Athena have/what role did she play in Ancient Greece?
 Working on it
